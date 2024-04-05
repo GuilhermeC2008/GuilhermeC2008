@@ -5,4 +5,4 @@
 - <strong>Tenho 16 anos
 - Sei falar Inglês e Português
 - Estou fazendo o curso técnico de desenvolvimento de sistemas no SENAC
-- Tenho mais de 400 horas totais nos jogos da série "Persona"<strong> <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTwSCHUYBN2gzKaH2UiMqAZGX6-w9NQMVTRfw&usqp=CAU" width="20px">
+- Tenho mais de 440 horas totais nos jogos da série "Persona"<strong> <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTwSCHUYBN2gzKaH2UiMqAZGX6-w9NQMVTRfw&usqp=CAU" width="20px">
