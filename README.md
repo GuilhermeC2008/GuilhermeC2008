@@ -2,7 +2,7 @@
 
 <img src="https://pa1.aminoapps.com/6403/13f051f91281ef5b26218ea7403a3e185f416ade_hq.gif" width="px">
 
-- <strong>Tenho 16 anos
+- <strong>Tenho 17 anos
 - Sei falar Inglês e Português
 - Estou fazendo o curso técnico de desenvolvimento de sistemas no SENAC
 - Tenho mais de 440 horas totais nos jogos da série "Persona"<strong> <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTwSCHUYBN2gzKaH2UiMqAZGX6-w9NQMVTRfw&usqp=CAU" width="20px">
